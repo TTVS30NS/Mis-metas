@@ -38,3 +38,4 @@ Mis metas representan los objetivos que quiero alcanzar para crecer personal y p
 Me comprometo a trabajar con disciplina, responsabilidad y perseverancia para alcanzar mis metas. Sé que cada objetivo requiere tiempo y esfuerzo, pero con constancia puedo acercarme cada día a la vida que quiero construir.
 
 **¡El futuro se construye con las acciones del presente!**
+ñ
